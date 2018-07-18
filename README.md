@@ -1,1 +1,0 @@
-# TestTask-Lique-Moly
